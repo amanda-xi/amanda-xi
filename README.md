@@ -1,4 +1,4 @@
-swe @ shopify, pe fellow @ meta x mlh, fe @ hack the north, develop at ubisoft fellow, uw blueprint dev
+incoming pe @ meta, swe @ shopify, pe fellow @ meta x mlh, fe @ hack the north, develop at ubisoft fellow, uw blueprint dev
 
 talk to me about operating systems, classic point-and-click computer puzzle games (i like grim fandango), and modern point-and-click computer puzzle games (i like return of the obra dinn). 
 
